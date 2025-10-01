@@ -14,4 +14,4 @@ Feel free to use anything, add your own, or ask questions.
 
 Let’s grow our networking skills step by step!
 
-— [Your Name]
+— Praveen Kambale
